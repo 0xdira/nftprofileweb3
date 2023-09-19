@@ -1,4 +1,4 @@
-# NFT PROFILES FOR WEB3
+# NFT PROFILESS FOR WEB3
 - 0xdira (1).jpg
 - 0xdira (2).jpg
 - 0xdira (3).jpg
