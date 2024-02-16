@@ -1,5 +1,5 @@
 # NFT PROFILES...................................................
-- 0xdira (1).jpg..
+- 0xdira (1).jpg...
 - 0xdira (2).jpg
 - 0xdira (3).jpg
 - 0xdira (4).jpg
